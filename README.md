@@ -1,3 +1,5 @@
+foqjoifwejoijeqw
+
 hi, this is colon from the future.
 
 what the FUCK was wrong with me back then???? seriously this is some of the worst code i've ever seen
